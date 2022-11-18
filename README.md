@@ -102,7 +102,7 @@ y el Whatsapp que este usando. Lo aconsejable es máximo 45 grupos
 --------- 
 ### 🌟 CREADORA 
  
-[![GataNina-Li](https://github.com/GataNina-Li.png?size=100)](https://github.com/GataNina-Li) 
+[![Multi-bot-md](https://github.com/Multi-bot-md.png?size=100)](https://github.com/Multi-bot-md) 
  
 ### 🌟 AGRADECIMIENTOS
  
